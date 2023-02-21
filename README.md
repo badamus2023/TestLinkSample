@@ -1,1 +1,1 @@
-# Portfolio na stanowisko testeraoprogramowania
+# Portfolio na stanowisko testera oprogramowania
